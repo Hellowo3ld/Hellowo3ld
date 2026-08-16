@@ -6,7 +6,7 @@
 ️⃣
 •̩̩͙ **˚.⊹ 𖦆 𝓦𝓘𝓕𝓘𝓔𝓢 ๋ ⑅˚.**----*•̩̩͙
 
-![image name](https://github.com/pigaxe/pigaxe/blob/bc0f19c55d1f2a07b2ee6935070cb35d6e8bea35/Screenshot_20260812_140048.jpg)
+![image name](https://github.com/Hellowo3ld/Hellowo3ld/blob/71e74d216c6b94b8b32b9a0262176a1f6e790558/Screenshot_20260812_140048.jpg)
 
 ＊*•̩̩͙✩•̩̩͙*˚          
 ＊*•̩̩͙✩•̩̩͙*˚ 
@@ -20,7 +20,7 @@ dont copyme unless u r my closefriend
 ️⃣️⃣*-)
 
 ️⃣✩️⃣•️⃣̩️⃣『 ✧˚ ༘ ˚ hi wifies:)) ˚｡⋆ ༘˚✧
-![image name](https://github.com/pigaxe/pigaxe/blob/8e5330f7e30735bb1e1af76e9ea38bd15b188553/1786241106737.gif)
+![image name](https://github.com/Hellowo3ld/Hellowo3ld/blob/71e74d216c6b94b8b32b9a0262176a1f6e790558/1786241106737.gif)
 art by cgouo_ and Break on lofter
 <!--
 **Hellowo3ld/Hellowo3ld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
