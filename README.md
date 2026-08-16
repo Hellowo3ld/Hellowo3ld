@@ -1,5 +1,41 @@
-## Hi there 👋
+✩•̩̩͙*˚ 
+𝕏𝕚𝕒𝕠𝕪𝕦 𝕠𝕣 𝔽𝕚𝕤𝕙 ✽＊•̩̩͙*˚ ＊*•̩̩*˚ ˚.
+🄸🅂🅃🄹 ⋆｡ﾟ☁︎☾ﾟ｡⋆  𝓬+𝓱 𝓯𝓻𝓮𝓮𝓵𝔂⋆⁺₊⋆ C+H FREELY ⋆⁺₊⋆--
+-
+-
+️⃣
+•̩̩͙ **˚.⊹ 𖦆 𝓦𝓘𝓕𝓘𝓔𝓢 ๋ ⑅˚.**----*•̩̩͙
 
+![image name](https://github.com/pigaxe/pigaxe/blob/bc0f19c55d1f2a07b2ee6935070cb35d6e8bea35/Screenshot_20260812_140048.jpg)
+
+＊*•̩̩͙✩•̩̩͙*˚          
+＊*•̩̩͙✩•̩̩͙*˚ 
+
+dont copyme unless u r my closefriend
+✩•̩̩͙*˚ 
+￴￴￴￴￴￴￴￴￴￴￴︎￴￴￴￴￴￴￴￴￴￴￴︎￴￴￴￴￴￴￴￴￴￴￴︎✩𓂃𝓽𝓪𝔁 𝓭𝓾𝓸.𓂃﹢₊˚ ✩•̩̩͙*˚ 
+
+
+️⃣✩️⃣•️⃣̩️⃣『 im not good   ️⃣️⃣️⃣✩️⃣at communication and im very  introve.. but im GLAD to make friends   w U ️⃣️⃣️⃣>ㅅ< 』
+️⃣️⃣*-)
+
+️⃣✩️⃣•️⃣̩️⃣『 ✧˚ ༘ ˚ hi wifies:)) ˚｡⋆ ༘˚✧
+![image name](https://github.com/pigaxe/pigaxe/blob/8e5330f7e30735bb1e1af76e9ea38bd15b188553/1786241106737.gif)
+art by cgouo_ and Break on lofter
+<!--
+**Hellowo3ld/Hellowo3ld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+Here are some ideas to get you started:
+
+- 🔭 I’m currently working on ...
+- 🌱 I’m currently learning ...
+- 👯 I’m looking to collaborate on ...
+- 🤔 I’m looking for help with ...
+- 💬 Ask me about ...
+- 📫 How to reach me: ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+-->
 <!--
 **Hellowo3ld/Hellowo3ld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
